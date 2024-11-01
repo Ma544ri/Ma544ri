@@ -6,7 +6,7 @@
 - e é isso.
 - 🐚 ⭐ 🐻‍❄️
 
-#Entre em contato comigo
+Entre em contato comigo
 - @mar._.zx
 - 
 - ![](https://media1.tenor.com/m/5Nyr__vnUd4AAAAC/hange-zoe-attack-on-titan.gif)
